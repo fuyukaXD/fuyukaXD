@@ -1,1 +1,1 @@
-![image alt](https://github.com/fuyukaXD/fuyukaXD/blob/88294d037c014bfb25caab8a63089fd4df297915/d2566066b8b13c50fde201dbd6cba97f.gif)
+![image alt](https://github.com/fuyukaXD/fuyukaXD/blob/fd67570d333a542a7f3e6bec0435f5b0e0e7f6b8/86879f3c818b4d2be354300954ee3839.jpg)
